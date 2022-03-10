@@ -6,3 +6,5 @@ Deja de coleccionar información del exterior y empieza a buscarla por ti mismo e
 pero no hacen absolutamente nada para cambiar su situación.»
 
 3.- «Hay dos lobos que siempre están luchando. Uno es oscuridad y desesperación. El otro es luz y esperanza. ¿Cuál gana? Aquel al que alimentas.»
+
+4.- «Si naces pobre no es tu culpa, si mueres pobre si es tu culpa»
